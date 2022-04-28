@@ -1,4 +1,4 @@
 - 👋 oi,eu sou  @nathalia243
-- 👀 estou interessado em
-- 🌱 estou aprendendo 
-- 📫 como chegar ate mim
+- 👀 estou interessado  em aprender novas linguagens
+- 🌱 estou aprendendo a programar recentemente a linguagem de javascript e scrath 
+- 📫 como chegar ate mim nathalia.mitrut@escola.pr.gov.pr
