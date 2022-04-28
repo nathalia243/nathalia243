@@ -1,0 +1,4 @@
+- 👋 oi,eu sou  @nathalia243
+- 👀 estou interessado em
+- 🌱 estou aprendendo 
+- 📫 como chegar ate mim
